@@ -25,7 +25,7 @@ Ultra simplified rules of the heart;
 - The heart is ready ~10+ if no heart failure has killed it (rape,relation,school,relocation,etc)
 - Love is electric and only works with female heart and male heart connecting in etherspace
 
-Love needs to clean, only the first gets real love, the next only gets stockholm.  
+Love needs to be clean, only the first gets real love, the next only gets stockholm.  
 Which is automatic social love which works with everybody.
 
 Thus for unactivated/unbroken children this leaves a time window of around 10 to 12 to find heart partner.
@@ -40,7 +40,7 @@ The path of love, building 7 year love time window gives;
 Have found 7-9-11 in classic sharia law. ("dictionary of islam" from 1885)  
 Remember heart love selection is before sexuality and sexuality can be activated on any age.  
 First touch heart dating (with OBE on first touch) is avg 10.5 boy with 12.5 girl.  
-(equal age forced roman school classes destroys a lot of love)
+(equal age forced roman mixed gender school classes destroys a lot of love)
 
 The process it triggers it called "automatic giving of the heart", and means the mind  
 has no choise over what the heart selected as compatible, choise is for the heartbroken.  
