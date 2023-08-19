@@ -117,7 +117,8 @@ Before they knew that they where naked;
 If the male hose works like a snake than love is fake.  
 If the female knows her tree has fruits than love is fake.  
 
-Partner selection must be done before a child is removed from the garden.
+Partner selection must be done before a child is removed from the garden.  
+After activation the human feelings, falls from the heart to the genitals.
 
 If I lived in the USA i would have sue options;
 - 7 years of Christian lower school who failed
